@@ -1,1 +1,2 @@
-# hitpiece-transcription
+Clearly we have struck a nerve and are very eager to create the ideal experience for music fans. To be clear, artists get paid when digital goods are sold on HitPiece. Like all bete products, we are continuing to listen to all user feedback and are committed to evolving the product to fit the needs of the artists, labels, and fans alike.
+- HitPiece tweet transcription, posted at 10:27 PM EST on February 1, 2022
